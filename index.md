@@ -6,4 +6,5 @@ Voldemort wollte auch ihn töten, aber dies gelang ihm nicht.
 * Ehrlich
 * Ergeizig
 * Sensibel
+* Stur
 
