@@ -12,3 +12,6 @@ Voldemort wollte auch ihn töten, aber dies gelang ihm nicht.
 Wie sagt Harry Potter:
 > Ich werde Voldemort besiegen
 
+<img src="https://vignette.wikia.nocookie.net/potter-encyclopaedia/images/9/9b/Harry.jpg/revision/latest?cb=20130811181130"/>
+
+
