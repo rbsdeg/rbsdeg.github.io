@@ -8,3 +8,7 @@ Voldemort wollte auch ihn töten, aber dies gelang ihm nicht.
 * Sensibel
 * Stur
 
+
+Wie sagt Harry Potter:
+> Ich werde Voldemort besiegen
+
